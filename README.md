@@ -1,6 +1,6 @@
 # rockcloudvpn
 机场节点,自由上网,突破限制，自由使用openai, facebook, ins,google等海外服务
-<a href="https://rockvpn.club/index.html">rockcloudvpn 机场<a>
+<a href="https://ggfbad.com">rockcloudvpn 机场<a>
 
 2024最新clash机场节点，优质靠谱机场推荐
 
@@ -18,4 +18,4 @@
 
 无日志记录，不存在任何监控
 
-<a href="https://rockvpn.club/index.html">rockcloudvpn 机场<a>
+<a href="https://ggfbad.com">rockcloudvpn 机场<a>
