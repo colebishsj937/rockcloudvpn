@@ -18,4 +18,6 @@
 
 无日志记录，不存在任何监控
 
+关注telegram频道，领取优惠券: @rockcloudvpn
+
 <a href="https://ggfbad.com">rockcloudvpn 机场<a>
